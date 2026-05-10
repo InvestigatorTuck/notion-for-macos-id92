@@ -1,4 +1,4 @@
-
+Get the ultimate Notion for macOS plugin with Notion for macOS smart Plugin - quick search and OCR scanning. Featuring quick search and OCR scanning, it's the best choice for
 
 
 
